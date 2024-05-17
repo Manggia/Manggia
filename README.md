@@ -4,8 +4,7 @@
 - 💞️ Je suis Francais Eet j'aimerai creer des deep fake humoristiques
 - 📫 J'aimerai bien un coup de main 
 - 😄 en Francais 
-- ⚡ avec quelqu'un de pat
-- ient    Merci
+- ⚡ avec quelqu'un de patient    Merci
 
 <!---
 Manggia/Manggia is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
