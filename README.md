@@ -1,10 +1,11 @@
 - 👋 Hi, Je suis  @Manggia
 - 👀 Je debute , je n'y comprends rien
 - 🌱 J'ai intallé Pinokio 18 fois cela n'a jamais marché 
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 💞️ Je suis Francais Eet j'aimerai creer des deep fake humoristiques
+- 📫 J'aimerai bien un coup de main 
+- 😄 en Francais 
+- ⚡ avec quelqu'un de pat
+- ient    Merci
 
 <!---
 Manggia/Manggia is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
