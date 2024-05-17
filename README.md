@@ -1,7 +1,7 @@
 - 👋 Hi, Je suis  @Manggia
 - 👀 Je debute , je n'y comprends rien
 - 🌱 J'ai intallé Pinokio 18 fois cela n'a jamais marché 
-- 💞️ Je suis Francais Eet j'aimerai creer des deep fake humoristiques
+- 💞️ Je suis Francais et j'aimerai creer des deep fake humoristiques
 - 📫 J'aimerai bien un coup de main 
 - 😄 en Francais 
 - ⚡ avec quelqu'un de patient    Merci
